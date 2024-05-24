@@ -12,6 +12,8 @@ My name is Vinicius
 ### You can enter in contact with me 📧 > 📬
 E-Mail: vs0541826@gmail.com 📫
 Phone Number: (18)99150-1628 📱
+
+
 ![.](https://media1.tenor.com/m/FKtdcMXKBhsAAAAC/yippee-happy.gif).
 
 
